@@ -88,7 +88,7 @@ IDEH works across four ecosystems:
 
 ## 📍 Find Us
 
-Rasht, Golsar — End of Street 80, Tehran Institute of Technology Building, 2nd Floor
+Rasht, Golsar — End of Street 80, Tehran Institute of Technology Building, 6th Floor
 📞 013‑34310000 (ext. 152 / 153)
 
 <div align="center">
